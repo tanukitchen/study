@@ -1,1 +1,0 @@
-# Raysuke Study
